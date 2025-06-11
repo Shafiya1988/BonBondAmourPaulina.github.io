@@ -1,5 +1,5 @@
 # BonBondAmourPaulina.github.io  🌹
-
+index.html
 Witaj w kreatywnym świecie jadalnych bukietów i wyjątkowych prezentów, które tworzę z sercem i pasją!
 
 👩‍🎨 Nazywam się **Paulina Bourahli** – twórczyni ręcznie robionych kompozycji z:
