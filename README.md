@@ -1,4 +1,4 @@
-# Bonbon d’Amour BLOSSOM 🌹
+# BonBondAmourPaulina.github.io  🌹
 
 Witaj w kreatywnym świecie jadalnych bukietów i wyjątkowych prezentów, które tworzę z sercem i pasją!
 
