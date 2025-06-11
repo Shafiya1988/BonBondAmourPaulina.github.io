@@ -1,8 +1,8 @@
 # BonBondAmourPaulina.github.io  🌹
-index.html
+
 Witaj w kreatywnym świecie jadalnych bukietów i wyjątkowych prezentów, które tworzę z sercem i pasją!
 
-👩‍🎨 Nazywam się **Paulina Bourahli** – twórczyni ręcznie robionych kompozycji z:
+👩‍🎨 Nazywam się **Paulina ** – twórczyni ręcznie robionych kompozycji z:
 - czekoladek Ferrero, Raffaello, Merci i innych
 - mydlanych róż i kwiatów
 - personalizowanych pudełek prezentowych
